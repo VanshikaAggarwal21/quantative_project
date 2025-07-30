@@ -1,1 +1,0 @@
-# quantative_project
